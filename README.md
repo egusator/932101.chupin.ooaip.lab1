@@ -1,0 +1,1 @@
+# 932101.chupin.ooaip.lab1
